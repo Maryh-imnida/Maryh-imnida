@@ -1,4 +1,4 @@
-## Welcome to Maryh's Profile 
+## Welcome to Marina's Profile 
 
  <div>
   <a href="https://github.com/Maryh-imnida">
